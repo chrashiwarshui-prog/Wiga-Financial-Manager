@@ -6,4 +6,4 @@ Ahafahanao manao kajy ny noty ny mpianatra rehetra ary direct efa bulletin vita 
  ANNUEL, trimestre, mensuel, Teste.
 
 
-https://chrashiwarshui-prog.github.io/Wiga-Financial-Manager/](https://chrashiwarshui-prog.github.io/Wiga-Financial-Manager/))
+https://chrashiwarshui-prog.github.io/Wiga-Financial-Manager/
