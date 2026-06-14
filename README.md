@@ -4,3 +4,4 @@ Ahafahanao manao kajy ny noty ny mpianatra rehetra ary direct efa bulletin vita 
 
  Somary misy premium kely izy fa afaka safidinana  :
  ANNUEL, trimestre, mensuel, Teste.
+AUTO CALCULE MOYENNE_2.0 Beta-1781434627425-signed.apk
